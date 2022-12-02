@@ -10,7 +10,7 @@
   - phone : plus nine one nine nine six nine two zero four two nine two
 
 ## social
-  - instagram | facebook : dakuojas
+  - instagram , facebook : dakuojas
   - telegram : t dot me slash dakuojas
 
 
