@@ -1,15 +1,15 @@
-ojas kadu
-computers | math | admirer of brutalist website design
+# ojas kadu
+### computers | math | admirer of brutalist website design
 
-# workplace 
+## workplace 
   - the archives at ncbs, bengaluru
   - idc school of design, iit bombay
 
-# contact
+## contact
   - email : dakuojas at gmail dot com
   - phone : plus nine one nine nine six nine two zero four two nine two
 
-# social
+## social
   - instagram | facebook : dakuojas
   - telegram : t dot me slash dakuojas
 
