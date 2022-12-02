@@ -1,4 +1,4 @@
-# ojas kadu ![cc-zero](https://commons.wikimedia.org/wiki/File:Cc-zero.svg)
+# ojas kadu
 
 ### computers | math | admirer of brutalist website design
 
