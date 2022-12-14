@@ -8,7 +8,7 @@
 
 ## contact
   - email : dakuojas at gmail dot com
-  - phone : plus nine one nine nine six nine two zero four two nine two
+  - phone , whatsapp , signal : plus nine one nine nine six nine two zero four two nine two
 
 ## social
   - instagram , facebook : dakuojas
