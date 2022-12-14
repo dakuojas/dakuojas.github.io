@@ -4,7 +4,7 @@
 
 ## workplace 
   - archives at ncbs, national centre for biological sciences - tata insitute of fundamental research, bengaluru
-  - idc school of design, iit bombay, mumbai
+  - idc school of design, indian institute of technology bombay, mumbai
 
 ## contact
   - email : dakuojas at gmail dot com
