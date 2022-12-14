@@ -3,7 +3,7 @@
 ### computers | math | admirer of brutalist website design
 
 ## workplace 
-  - the archives at ncbs, bengaluru
+  - archives at ncbs, bengaluru
   - idc school of design, iit bombay
 
 ## contact
