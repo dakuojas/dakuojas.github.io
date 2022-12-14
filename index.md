@@ -3,8 +3,8 @@
 ### computers | math | admirer of brutalist website design
 
 ## workplace 
-  - archives at ncbs, bengaluru
-  - idc school of design, iit bombay
+  - archives at ncbs, national centre for biological sciences - tata insitute of fundamental research, bengaluru
+  - idc school of design, iit bombay, mumbai
 
 ## contact
   - email : dakuojas at gmail dot com
