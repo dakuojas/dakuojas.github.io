@@ -3,7 +3,7 @@
 ### computers | math | admirer of brutalist website design
 
 ## workplace 
-  - archives at ncbs, national centre for biological sciences - tata insitute of fundamental research, bengaluru
+  - archives at ncbs, national centre for biological sciences - tata institute of fundamental research, bengaluru
   - idc school of design, indian institute of technology bombay, mumbai
 
 ## contact
