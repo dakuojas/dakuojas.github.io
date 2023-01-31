@@ -11,7 +11,6 @@
   - phone , whatsapp , signal : plus nine one nine nine six nine two zero four two nine two
 
 ## social
-  - instagram , facebook : dakuojas
-  - telegram : t dot me slash dakuojas
+  - instagram , facebook , telegram : dakuojas
 
 
